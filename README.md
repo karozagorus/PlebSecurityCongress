@@ -1,4 +1,4 @@
-# PlebSecurityCongress
+# PlebSecCongress
 
 <img src="https://raw.githubusercontent.com/karozagorus/PlebSecurityCongress/master/plebsec.jpg" alt="PlebSec">
 
