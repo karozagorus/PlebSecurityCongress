@@ -1,6 +1,6 @@
 # PlebSecurityCongress
 
-<img src="https://raw.githubusercontent.com/karozagorus/PlebSecurityCongress/master/plebseccongress.jpg" alt="PlebSec">
+<img src="https://raw.githubusercontent.com/karozagorus/PlebSecurityCongress/master/plebsec.jpg" alt="PlebSec">
 
 #Bitcoin only Congress<br>
 for Ideologically Aligned Individuals<br>
