@@ -15,17 +15,18 @@ This security congress was created here to make it possible for bitcoiners to ge
 It is important that we start talking about these issues right now, not later.<br>
 <br>
 <br>
-# Confirmed Presenters<br>
-Karo Zagorus - @btcdragonlord<br>
-Jaky - @gekyyy<br>
-katoshi - @bitcoinkatia<br>
-hodlonaut - @hodlonaut<br>
-
-
 #Bitcoin only Congress<br>
 for Ideologically Aligned Individuals<br>
 to Strengthen and Protect<br>
 the Social Organization of Bitcoiners<br>
 against Hostile Interests<br>
 
-Announcement work in progress, detailes will be added here.
+Announcement work in progress, detailes will be added here.<br><br>
+
+
+# Confirmed Presenters<br>
+Karo Zagorus - @btcdragonlord<br>
+Jaky - @gekyyy<br>
+katoshi - @bitcoinkatia<br>
+hodlonaut - @hodlonaut<br>
+
