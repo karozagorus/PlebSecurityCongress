@@ -14,6 +14,12 @@ One of the next logical step for those in power now is to start attacking us, bi
 This security congress was created here to make it possible for bitcoiners to get informed, get educated and to be able to debate these issues among themselves while reciving valuable input from knowledged individuals among them.<br>
 It is important that we start talking about these issues right now, not later.<br>
 <br>
+<br>
+# Confirmed Presenters<br>
+Karo Zagorus - @btcdragonlord<br>
+Jaky - @gekyyy<br>
+katoshi - @bitcoinkatia<br>
+hodlonaut - @hodlonaut<br>
 
 
 #Bitcoin only Congress<br>
