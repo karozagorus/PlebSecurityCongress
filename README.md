@@ -30,6 +30,6 @@ Jaky - @gekyyy<br>
 katoshi - @bitcoinkatia<br>
 hodlonaut - @hodlonaut<br>
 Alexandra - @alexandra993<br>
-Francis Pouliot - @francispouliot_
+Francis Pouliot - @francispouliot_<br>
 Shinobi - @brian_trollz
 
