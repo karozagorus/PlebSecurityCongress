@@ -31,4 +31,5 @@ katoshi - @bitcoinkatia<br>
 hodlonaut - @hodlonaut<br>
 Alexandra - @alexandra993<br>
 Francis Pouliot - @francispouliot_
+Shinobi - @brian_trollz
 
