@@ -7,7 +7,7 @@ As we move forward, it becomes more and more apparent that the gaze of those in 
 <br>
 Individuals are simply not prepared.<br>
 <br>
-The plans of 'Big Government' to control Bitcoin will be executed on an asymmetric battlefront. Around the world, they will attempt to encircle and then eliminte the ability of the sovereign individual to regain their freedom through the use of bitcoin. National banks will offer custodial storage solutions that exercise control by capturing a large percentage of its supply. The next logical step is to restrict the movement of bitcoin within the privacy-invastive KYC/ AML policies of exchanges and banks, preventing users from withdrawing their funds into individual custody.<br>
+The plans of 'Big Government' to control Bitcoin will be executed on an asymmetric battlefront. Around the world, they will attempt to encircle and then eliminte the ability of the sovereign individual to regain their freedom through the use of bitcoin. National banks will offer custodial storage solutions that exercise control by capturing a large percentage of its supply. The next logical step is to restrict the movement of bitcoin within the privacy-invasive KYC/ AML policies of exchanges and banks, preventing users from withdrawing their funds into individual custody.<br>
 <br>
 The ultimate goal of those in power is to render our ability to organize, impossible. They might achieve this, but only if we let them.<br>
 <br>
