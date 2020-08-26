@@ -23,6 +23,8 @@ against Hostile Interests<br>
 
 Announcement work in progress, detailes will be added here.<br><br>
 
+If you want to support the congress, you can donate Bitcoin here:<br>
+bc1qxwlqghqqw62eyzdkalqy0gth438zpdthr320n8<br>
 
 # Confirmed Presenters<br>
 Karo Zagorus - @btcdragonlord<br>
@@ -32,4 +34,5 @@ hodlonaut - @hodlonaut<br>
 Alexandra - @alexandra993<br>
 Francis Pouliot - @francispouliot_<br>
 Shinobi - @brian_trollz
-
+TBA
+TBA
