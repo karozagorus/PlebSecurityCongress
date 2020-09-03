@@ -21,7 +21,7 @@ to Strengthen and Protect<br>
 the Social Organization of Bitcoiners<br>
 against Hostile Interests<br>
 
-Announcement work in progress, detailes will be added here.<br><br>
+<br><br>
 
 If you want to support the congress, you can donate Bitcoin here:<br>
 bc1qxwlqghqqw62eyzdkalqy0gth438zpdthr320n8<br>
