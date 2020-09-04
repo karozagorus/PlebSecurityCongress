@@ -33,5 +33,5 @@ katoshi - @bitcoinkatia<br>
 Alexandra - @alexandra993<br>
 Francis Pouliot - @francispouliot_<br>
 Shinobi - @brian_trollz <br>
-TBA<br>
+MVDEX - @spacebull<br>
 TBA
