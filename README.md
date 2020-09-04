@@ -30,7 +30,6 @@ bc1qxwlqghqqw62eyzdkalqy0gth438zpdthr320n8<br>
 Karo Zagorus - @btcdragonlord<br>
 Jaky - @gekyyy<br>
 katoshi - @bitcoinkatia<br>
-hodlonaut - @hodlonaut<br>
 Alexandra - @alexandra993<br>
 Francis Pouliot - @francispouliot_<br>
 Shinobi - @brian_trollz <br>
