@@ -31,7 +31,7 @@ bc1qxwlqghqqw62eyzdkalqy0gth438zpdthr320n8<br>
 # Confirmed Presenters<br>
 Karo Zagorus - @btcdragonlord<br>
 Jaky - @gekyyy<br>
-katoshi - @bitcoinkatia<br>
+BTChap - @btchap<br>
 Alexandra - @alexandra993<br>
 Francis Pouliot - @francispouliot_<br>
 Shinobi - @brian_trollz <br>
