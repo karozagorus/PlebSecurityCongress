@@ -33,7 +33,7 @@ Karo Zagorus - @btcdragonlord<br>
 Jaky - @gekyyy<br>
 BTChap - @btchap<br>
 Coinicarus @coinicarus<br>
-Alexandra - @alexandra993<br>
+Alexandra - @alexandra933<br>
 Francis Pouliot - @francispouliot_<br>
 Shinobi - @brian_trollz <br>
 MVDEX - @spacebull<br>
