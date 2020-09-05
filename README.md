@@ -23,6 +23,8 @@ against Hostile Interests<br>
 
 <br><br>
 
+Congress First Day Event Giveaway Sponsored by Coinkite the makers of the Coldcard<br><br>
+
 If you want to support the congress, you can donate Bitcoin here:<br>
 bc1qxwlqghqqw62eyzdkalqy0gth438zpdthr320n8<br>
 
