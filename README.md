@@ -38,7 +38,7 @@ Coinicarus @coinicarus<br>
 Alexandra - @alexandra933<br>
 Francis Pouliot - @francispouliot_<br>
 Shinobi - @brian_trollz <br>
-Nico - @BITVOLT7
+Nico - @BITVOLT7<br>
 Optimist - @@My_Livin_Truth <br>
 
 # Day 2 Workshop
