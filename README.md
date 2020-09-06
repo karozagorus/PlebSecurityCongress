@@ -40,3 +40,24 @@ Francis Pouliot - @francispouliot_<br>
 Shinobi - @brian_trollz <br>
 Nico - @BITVOLT7
 Optimist - @@My_Livin_Truth <br>
+
+# Day 2 Workshop
+
+
+# Day 2
+
+Day 2 will happen on BitcoinEnemies.com 
+Mumble Connection details: 
+bitcoinenemies.com
+port: 64738
+Room: Dragon's Hold
+
+Open discussion entire day focusing on previous topics seen the previous days.
+
+19:00 - Start of Open Event on BitcoinEnemies.com
+19:10 - The State of Taco Plebs
+20:00 - The Great Wave of Boating Accidents aka how to screw over the goblerment
+21:00 - Ways to obtain KYC Free Bitcoin
+22:00 - Are we the Nazis? Aka how to combat leftist demagogy
+23:00 - Getting rid of toxic waste the correct way
+00:00 - Day 2 Closing Remarks
