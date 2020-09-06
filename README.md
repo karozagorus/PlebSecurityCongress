@@ -28,7 +28,7 @@ Congress First Day Event Giveaway Sponsored by Coinkite the makers of the Coldca
 If you want to support the congress, you can donate Bitcoin here:<br>
 bc1qxwlqghqqw62eyzdkalqy0gth438zpdthr320n8<br>
 
-# Confirmed Presenters<br>
+# Confirmed Presenters for Day 1<br>
 Karo Zagorus - @btcdragonlord<br>
 Jaky - @gekyyy<br>
 BTChap - @btchap<br>
@@ -36,5 +36,5 @@ Coinicarus @coinicarus<br>
 Alexandra - @alexandra933<br>
 Francis Pouliot - @francispouliot_<br>
 Shinobi - @brian_trollz <br>
-MVDEX - @spacebull<br>
-TBA
+Nico - @BITVOLT7
+Optimist - @@My_Livin_Truth <br>
