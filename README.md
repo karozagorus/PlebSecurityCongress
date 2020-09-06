@@ -57,4 +57,6 @@ Open discussion entire day focusing on previous topics seen the previous days.<b
 21:00 - Ways to obtain KYC Free Bitcoin<br>
 22:00 - Are we the Nazis? Aka how to combat leftist demagogy<br>
 23:00 - Getting rid of toxic waste the correct way<br>
-00:00 - Day 2 Closing Remarks<br>
+00:00 - Day 2 Closing Remarks<br><br>
+
+Day 2 Giveaway Sponsors:<br>
