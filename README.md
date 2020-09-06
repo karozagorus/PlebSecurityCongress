@@ -43,9 +43,6 @@ Optimist - @@My_Livin_Truth <br>
 
 # Day 2 Workshop
 
-
-# Day 2
-
 Day 2 will happen on BitcoinEnemies.com 
 Mumble Connection details: 
 bitcoinenemies.com
