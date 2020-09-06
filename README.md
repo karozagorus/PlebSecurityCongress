@@ -26,7 +26,9 @@ against Hostile Interests<br>
 Congress First Day Event Giveaway Sponsored by Coinkite the makers of the Coldcard<br><br>
 
 If you want to support the congress, you can donate Bitcoin here:<br>
-bc1qxwlqghqqw62eyzdkalqy0gth438zpdthr320n8<br>
+bc1qxwlqghqqw62eyzdkalqy0gth438zpdthr320n8<br><br>
+
+A big thank you for Coinicarus and his podcast Fun With Bitcoin Podcast for hosting the Day 1 Live Steam.<br><br>
 
 # Confirmed Presenters for Day 1<br>
 Karo Zagorus - @btcdragonlord<br>
