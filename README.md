@@ -51,7 +51,7 @@ Room: Dragon's Hold<br><br>
 
 Open discussion entire day focusing on previous topics seen the previous days.<br><br>
 
-19:00 - Start of Open Event on BitcoinEnemies.com<br><br
+19:00 - Start of Open Event on BitcoinEnemies.com<br>
 19:10 - The State of Taco Plebs<br>
 20:00 - The Great Wave of Boating Accidents aka how to screw over the goblerment<br>
 21:00 - Ways to obtain KYC Free Bitcoin<br>
