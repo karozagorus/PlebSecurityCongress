@@ -62,3 +62,4 @@ Open discussion entire day focusing on previous topics seen the previous days.<b
 Day 2 Giveaway Sponsors:<br>
 4 sats ledger bundle with special swag gift courtesy of satsledger.com<br>
 2 Cobo Vault Pro and 2 Cobo Tablet Pro by the makers of Cobo Vault<br>
+1 Opendime pin, 1 Swan Signal pin, 1 Orange Pill pin, 1 Cryptocloaks Grenade pin and a bunch of stickers courtesy of BTCPins<br>
