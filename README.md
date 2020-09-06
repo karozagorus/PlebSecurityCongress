@@ -39,7 +39,7 @@ Alexandra - @alexandra933<br>
 Francis Pouliot - @francispouliot_<br>
 Shinobi - @brian_trollz <br>
 Nico - @BITVOLT7<br>
-Optimist - @@My_Livin_Truth <br>
+Optimist - @My_Livin_Truth <br>
 
 # Day 2 Workshop
 
@@ -60,3 +60,5 @@ Open discussion entire day focusing on previous topics seen the previous days.<b
 00:00 - Day 2 Closing Remarks<br><br>
 
 Day 2 Giveaway Sponsors:<br>
+4 sats ledger bundle with special swag gift courtesy of satsledger.com<br>
+2 Cobo Vault Pro and 2 Cobo Tablet Pro by the makers of Cobo Vault<br>
