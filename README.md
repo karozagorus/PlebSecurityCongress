@@ -43,18 +43,18 @@ Optimist - @@My_Livin_Truth <br>
 
 # Day 2 Workshop
 
-Day 2 will happen on BitcoinEnemies.com 
-Mumble Connection details: 
-bitcoinenemies.com
-port: 64738
-Room: Dragon's Hold
+Day 2 will happen on BitcoinEnemies.com <br>
+Mumble Connection details: <br>
+bitcoinenemies.com<br>
+port: 64738<br>
+Room: Dragon's Hold<br><br>
 
-Open discussion entire day focusing on previous topics seen the previous days.
+Open discussion entire day focusing on previous topics seen the previous days.<br><br>
 
-19:00 - Start of Open Event on BitcoinEnemies.com
-19:10 - The State of Taco Plebs
-20:00 - The Great Wave of Boating Accidents aka how to screw over the goblerment
-21:00 - Ways to obtain KYC Free Bitcoin
-22:00 - Are we the Nazis? Aka how to combat leftist demagogy
-23:00 - Getting rid of toxic waste the correct way
-00:00 - Day 2 Closing Remarks
+19:00 - Start of Open Event on BitcoinEnemies.com<br><br
+19:10 - The State of Taco Plebs<br>
+20:00 - The Great Wave of Boating Accidents aka how to screw over the goblerment<br>
+21:00 - Ways to obtain KYC Free Bitcoin<br>
+22:00 - Are we the Nazis? Aka how to combat leftist demagogy<br>
+23:00 - Getting rid of toxic waste the correct way<br>
+00:00 - Day 2 Closing Remarks<br>
