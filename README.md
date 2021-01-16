@@ -1,4 +1,4 @@
-# PlebSecCongress
+# PlebSecCongress [Physical Security, :)]
 
 <img src="https://raw.githubusercontent.com/karozagorus/PlebSecurityCongress/master/plebsec.jpg" alt="PlebSec">
 
